@@ -1,7 +1,7 @@
 ### Hi there 👋
 
  <br/> 🇧🇷 Born in Rio Grande, Rio Grande Do Sul, Brazil 🧉
- <br/> 🇧🇷 Living in Vitoria, Espirito Santo, Brazil
+ <br/> 🇧🇷 Living in Serra, Espirito Santo, Brazil
  <br/> ⛪ Evangelical
  <br/> 💬 Enthusiastic about cycling 🚲, technology 💻, 🎮 games and Japanese culture 🇯🇵
  <br/> ☕ Passionate about coffee
